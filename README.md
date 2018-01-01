@@ -1,2 +1,0 @@
-# pierres-hemsida
-Pierres hemsida
